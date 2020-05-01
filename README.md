@@ -1,1 +1,0 @@
-poster done during the NUS summer workshop 2019
